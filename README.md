@@ -1,3 +1,3 @@
-# Hi Guys..
+# Hi 👋🏾
 ![image](https://github.com/Niranjana123-art/Niranjana/blob/main/Niranjana.png)
 
